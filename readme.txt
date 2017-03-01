@@ -1,0 +1,1 @@
+The indicator can work in a various modes. If you have any questions, you can ask me here: senyaligin@gmail.com, or in skype: semen_ligin.
